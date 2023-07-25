@@ -1,4 +1,8 @@
-Continuous Gravitational Wave Deteriotion With Amalgomation and Interference
+Continuous Gravitational Wave Deteriotion With Amalgomation and Interference  + ? 
+-Might as well start on the mathematical concepts rather than finishing the hypothesis?
+ There's a missing piece to the Hypothesis (why did I capitalize that? It's a name place or?)
+ -It would be a good concept to apply arithmetic in terms of humour, but I'm looking for someone
+  that will come up with a third point (we have two)..
 
 "Time cares not whether space has particles; it doesn't particularly care"
 
